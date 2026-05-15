@@ -1,4 +1,4 @@
-# 
+# Enhance 7-Zip for PC | 7-Zip for Windows with 7-Zip for PC | 7-Zip for Windows rare Plugin: encryption & file-compression, the #1 plugin. Includes encryption and file-compression
 
 
 
